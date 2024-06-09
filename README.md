@@ -1,4 +1,4 @@
-# Spam Chat
+# Spam Chat bales memek
 Aplikasi untuk melakukan spam chat. Kalo kamu bucin, bisa buat spam doi mu (bangunin sahur misalnya)
 
 ### Tentang
